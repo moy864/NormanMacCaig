@@ -1,0 +1,1 @@
+This use of [[synechdoche]] draws attention to the nostrils to emphasise the idea that the hospital smell is overpowering. The narrator's whole body is moving down the corridors, not just his nose. All other impressions have been blocked out and he can only focus on the smell thus intensifying his unease.

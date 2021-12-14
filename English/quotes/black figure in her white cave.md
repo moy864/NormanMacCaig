@@ -1,0 +1,2 @@
+ [[Norman MacCaig]] [[Visiting Hour]]
+ [[recurring image]]: the [[contrasts]] in colours highlights the distance and disparities between the pair. "black" has connotations of death, "white" has connotations of purity anf vulnerability

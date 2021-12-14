@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Visiting Hour]]
+ [[metaphors]]: The bed is screened of a white curtain, in the centre of which she lies. It is compared to a cave of "forgetfulness" because she is unconscious. The metaphor  is appropriate because she is cut-off from the world due to her pain and condiiton, and therefore can not communicate with the poet.
