@@ -9,7 +9,7 @@
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Biology/unit 2/2.6.md",
+            "file": "English/quotes/To stub.md",
             "mode": "preview"
           }
         }
@@ -68,7 +68,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Biology/unit 2/2.6.md",
+                "file": "English/quotes/To stub.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -78,17 +78,8 @@
                 "unlinkedCollapsed": true
               }
             }
-          },
-          {
-            "id": "810d1fecec137a75",
-            "type": "leaf",
-            "state": {
-              "type": "advanced-tables-toolbar",
-              "state": {}
-            }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
@@ -96,15 +87,15 @@
   },
   "active": "15e24e0a6303053a",
   "lastOpenFiles": [
+    "English/quotes/To stub.md",
+    "English/MacCaig/Basking Shark.md",
+    "English/MacCaig/Assisi.md",
     "Biology/unit 2/2.6.md",
     "Biology/unit 2/2.7.md",
     "Biology/unit 2/2.2.md",
     "Biology/unit 2/unit 2.md",
     "Biology/unit 2/2.1.md",
     "Biology/Biology MOC.md",
-    "uh/MOC.md",
-    "Biology/biology.md",
-    "English/MacCaig/Techniques/alliteration.md",
-    "uh/Screenshot 2021-12-11 at 13.15.53.png"
+    "uh/MOC.md"
   ]
 }
