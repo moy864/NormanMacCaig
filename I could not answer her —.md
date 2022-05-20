@@ -1,0 +1,2 @@
+[[Aunt Julia]] [[Norman MacCaig]]
+The [[parallel sentrence structure]] emphasises MacCaig's despair and frustration. The climatic structure reveals that not only could he not reply to her, but could not comprehend what she was saying either. This therefore emphaises the annoyance of the language barrier that existed between the pair

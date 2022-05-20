@@ -1,0 +1,2 @@
+[[Assisi]] [[Norman MacCaig]]
+This [[metaphors]] suggests  that just as a farmer scatters seed for mindless hens, so too are the tourists thoughtless as they follow the priest. This theorefore emphasises their ignorance and willingess to thoughtlessly accpet whatever the priest says.

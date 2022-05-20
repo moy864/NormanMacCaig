@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+The wild west metaphor ([[recurring image]]) is continued: "no stockades/ can keep the midnight out". This suggests that just as stockades were used to keep native americans out of their own homeland, so too does the darkness triumph over human efforts. The negative [[Word choice]] here emphasises the pessimism providing a short and philosophical ending appropriate for the bleak message this poem presents.

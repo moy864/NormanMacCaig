@@ -1,0 +1,2 @@
+[[Assisi]] [[Norman MacCaig]]
+The [[paradox]] of "ruined temple" is effective at describing the dwarf. The [[Word choice]] of "ruined" suggests neglect and that something that once had potential. A "temple" is a building with rich cultural and religious significance which is beautiful, thus suggesting that despite his physical deformity, the dwarf is polite and innocent.

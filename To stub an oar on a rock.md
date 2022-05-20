@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Basking Shark]]
+The [[infinitive]] verb form and metaphor of the shark being a rock suggests that just as a rock is a heavy inanimate object, so too does the shark lack emotional capability and is bulky.

@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Basking Shark]]
+This use of [[onomatopoeia]] suggests that the pool of water is an analogy for the poet's thoughts which are being moved around as a result of this encounter and epiphany

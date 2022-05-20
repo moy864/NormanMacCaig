@@ -1,0 +1,2 @@
+[[Aunt Julia]] [[Norman MacCaig]]
+[[metaphors]]: suggests that just as seagulls are loud creatures that make harsh sounds, so too was Aunt Julia incomprehensible to MacCaig. This therefore emphasises the communication barrier between the two.

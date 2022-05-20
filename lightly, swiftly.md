@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Visiting Hour]]
+The adeverb choice ([[Word choice]]) suggests the care-free and efficient manner in which the nurses move from patient to patient. It also emphasies the poet's admiation for the ease with which the nurses do their job. 

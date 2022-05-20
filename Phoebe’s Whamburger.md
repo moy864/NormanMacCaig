@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Brooklyn Cop]]
+overly-americanised snd real placescreate a sense of authenticity and an intense visual picture of the area. "wham" suggests violence as it is depicted in comic books

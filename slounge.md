@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Basking Shark]]
+The [[onomatopoeia]]  suggests the noise of the waves as the shark leaves the water. It is also a portmanteau/neologism of the words "plunge" and "slump" giving hint to the sheer size of the shark

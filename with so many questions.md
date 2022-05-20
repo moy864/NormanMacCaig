@@ -1,0 +1,2 @@
+[[Aunt Julia]] [[Norman MacCaig]]
+the [[enjambment]] of "so many questions/ unanswered" highlights the regret MacCaig feels in not being able to undertsand his aunt while she was alive. Furthermore, the isolation of "unanswered" gives a vivid sense of his isolation from aunt Julia as a result of the communication barrier.

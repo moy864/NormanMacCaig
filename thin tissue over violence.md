@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Brooklyn Cop]]
+[[metaphors]]: the metaphor "thin tissue over violence"  suggests that just as tissues are easily breakable and thin, so too is there is a weak veneer over crime in Brooklyn. It also conveys the idea that peace is very fragile and easy to be overthrown.

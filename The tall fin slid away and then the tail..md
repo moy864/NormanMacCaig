@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Basking Shark]]
+The use of [[long vowel sounds]] suggests the slow movement of the shark and provides a graceful descriotion hihglighting the poets newfound respect for the animal. It therefore emphasises the narrator's admiration for the creature's grace and humble view of self.

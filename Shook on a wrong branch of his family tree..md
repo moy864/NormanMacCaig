@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Basking Shark]]
+This suggests that the poet has started to meditate on his origins and lifestyle; at the end of the day all life started from the same primative origins. The word "wrong" also suggests that the poet may not want to admiti his relatedness to this brainless animal.

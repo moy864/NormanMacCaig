@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+[[metaphors]]: just as  dentist's drill may inflict pain, so too are the large buildings of New York ugly and unnecessary. This pokes fun at the American view of bigger being better and trivialises human pride

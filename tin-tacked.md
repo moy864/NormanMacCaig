@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Basking Shark]]
+The [[alliteration]] of "tin-tacked" provides both visual and aural imagery. It reminds the reader of the noise raindrops will be making on the boat giving a sense of place. 

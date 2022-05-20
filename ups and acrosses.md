@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+[[imagery]] connotes a crossword and suggests that the sight is overwhelming and vivid. Moreover, the unusual [[Syntax]] creates chaotic energy imitating the scenes of New York at night

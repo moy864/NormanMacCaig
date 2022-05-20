@@ -1,0 +1,2 @@
+[[Aunt Julia]] [[Norman MacCaig]]
+repetition of 'dle' heavy sounds gives a rhythmic quality to the line. It accentuates the lengthiness of the spinning process. It also creates a sense of movement and activity which MacCaig associates with his aunt.
