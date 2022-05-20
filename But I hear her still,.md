@@ -1,0 +1,2 @@
+[[Aunt Julia]] [[Norman MacCaig]]
+This change in tone and use of the [[present tense]] suggests that even afer Aunt Julia's death, MacCaig can still vividly picture her. This thereofre emphasises the lasting impression she had on him.

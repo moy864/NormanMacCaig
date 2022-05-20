@@ -1,0 +1,2 @@
+[[Aunt Julia]] [[Norman MacCaig]]
+This use of [[anthropomorphism]] suggests that even the insects and animals living in Aunt Julia's village are hospitable and welcoming. This therefore emphasises the comfortable and cozy atmosphere of Aunt Julia's house and area.

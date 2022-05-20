@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Brooklyn Cop]]
+This [[rehetoical question]] and [[recurring image]] escalates the idea of violence described in the poem. It further emphasises the dehumanisation and desensitisation of the cop.

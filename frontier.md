@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+The [[recurring image]]/ extended metaphor "the frontier is never/ somewhere else" continues the idea of the wild west and suggests that there is evil and violence within each and every one of us. It also conntotes that violence is never far thus emphasising the fact that it is a widespread issue not confined to a set area or group of individuals.

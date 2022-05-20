@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Brooklyn Cop]]
+The [[enjambment]] of "and who would be who have to be/ his victims" isolates the final point that criminals are victims at the hands of the cop and the inevitability of some people falling victim to police brutality. The enjambment emphasises that he is very much a perpetrator of this violence as he is a proector of society, likening the cop to a criminal.

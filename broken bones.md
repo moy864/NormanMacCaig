@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+[[synechdoche]] and [[alliteration]] suggest that the emergency services are rushing to injuries as opposed to people suggesting depersonalisation and dehumanisation

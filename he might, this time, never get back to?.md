@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Brooklyn Cop]]
+The use of [[parenthesis]] emphasise the uncertainty associated witht he policeman's job in how he can never guarantee that he will make it home to his partner. Furthermore, it gives a sense of the constant fear that must run through his head induced by the unpredictability of the day ahead.

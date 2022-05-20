@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Brooklyn Cop]]
+[[metaphors]]: could be desribing his physical scares as a result of his work. On a deeper level, it could suggest that just as hieroglyphs are unintelligible to most people, so too is he hard to read as a person 

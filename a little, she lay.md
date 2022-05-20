@@ -1,0 +1,3 @@
+[[Aunt Julia]][[Norman MacCaig]]
+
+The [[enjambment]] of "by the time I had learned/ a little, she lay/ silenced" emphasises the fact that MacCaig had only learnt a small amount of his aunt's mother tounge. However, it was too little too late. Furthermore, the enjambment isolates the word "silenced" which creates irony because it [[contrasts]] with the vibrant and outgoing perosnality of Aunt Julia.

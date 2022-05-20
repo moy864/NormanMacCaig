@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+[[Similies]]: suggests that just as an insect may struggle to survive in an urban environment, so too the helicopter is dysfunctional and fragile. Furthermore, this suggests that it is troublesome to humans and is a sign of modern technology

@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Aunt Julia]]
+This link relates the place in which his aunt is buried back to the "box bed" in which MacCaig used to sleep in while at his aunt's house. It suggests that the darkness that he used to find fun and enjoyable now has sinister connotations as it describes his grave

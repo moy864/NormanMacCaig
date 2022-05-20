@@ -1,0 +1,2 @@
+[[Assisi]] [[Norman MacCaig]]
+This [[Similies]] humanises the dwarf and reveals his sweet and gentle personality. Just as 'grazie' is Italian for 'thank you' and a child is cute, so too is the dwarf polite.

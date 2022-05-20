@@ -1,0 +1,2 @@
+[[Norman MacCaig]] [[Hotel Room, 12th floor]]
+The [[enjambment]] of "blood/ glazed on sidewalks" suggests that the blood will stay where it is for a long time serving as a permenant reminder of the danger that lurks in New York.  This therefore emphasises the savergy and violence going on in the city
