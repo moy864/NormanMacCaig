@@ -1,2 +1,0 @@
- [[Norman MacCaig]] [[Visiting Hour]]
- This PUN can mean two things. Firstly, it could mean that the poet grows fainter with the distance from the patient ; he fades away. Secondly, it could mean he is so upset that he might faint.

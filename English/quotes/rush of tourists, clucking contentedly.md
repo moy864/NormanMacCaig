@@ -1,1 +1,0 @@
-[[Assisi]][[Norman MacCaig]]

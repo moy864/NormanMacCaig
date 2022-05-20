@@ -1,2 +1,0 @@
- [[Norman MacCaig]] [[Visiting Hour]]
-  [[recurring image]]: just as a floor blooms and then dies, so too has the woman lost her vitality. This is also ironic because flowers are often given to ill people as gifts

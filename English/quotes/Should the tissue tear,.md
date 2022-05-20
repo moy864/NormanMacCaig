@@ -1,1 +1,0 @@
-[[Norman MacCaig]] [[Brooklyn Cop]]

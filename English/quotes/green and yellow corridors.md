@@ -1,1 +1,0 @@
-the [[Word choice]] of "green and yellow corridors" descrubes colours that are associated with sickness and infection. This thus emphasises the uneasy mood associated with the hospital

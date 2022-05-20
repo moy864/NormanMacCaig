@@ -1,2 +1,0 @@
-Metaphors
-[[Norman MacCaig]]

@@ -1,3 +1,0 @@
-[[Norman MacCaig]]
-[[Similies]]
-[[metaphors]]

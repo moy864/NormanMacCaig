@@ -1,1 +1,0 @@
-[[Norman MacCaig]] [[Hotel Room, 12th floor]]
